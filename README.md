@@ -1,2 +1,7 @@
 # PSX-DUPING
 PSX DUPING BY PYTHON 2023
+TUTORIAL IS HERE! https://www.youtube.com/watch?v=VbV7inqPZZY
+JOIN DISCORD FOR UPDATES AND MORE!
+[https://d](https://discord.gg/rxYY42EYyh)
+
+FILE IS CLEAR WITHOUT ANY VIRUS!
